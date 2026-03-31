@@ -121,4 +121,5 @@ En la Isla de la Juventud, Bitcoin no es solo tecnología: **es resistencia**.
 
 > *"El mayor peligro no es la opresión de los malvados, sino la indiferencia de los buenos"* — Martin Luther King Jr.
 
+En la Isla de la Juventud, esa indiferencia es geográfica, digital y financiera.
 
